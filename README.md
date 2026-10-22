@@ -1,1 +1,1 @@
-# IT1A
+# Bawal ang tamad sa Olongapo
